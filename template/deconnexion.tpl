@@ -1,0 +1,1 @@
+Deconnexion, vous allez être redirigés vers la page d'accueil.
